@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @titoubech
+- 👀 I’m interested in ice hockey, videos and photos
+- 🌱 I’m currently learning how to program website
